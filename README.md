@@ -1,5 +1,5 @@
-# 💫 About Me:
-🔭 I’m currently working on<br>👯 I’m looking to collaborate on<br>🤝 I’m looking for help with<br>🌱 I’m currently learning<br>💬 Ask me about<br>⚡ Fun fact
+# 💫 About Me:NewKTZ
+🔭 I’m currently working on : Loding...<br>👯 I’m looking to collaborate on : Loding...<br>🤝 I’m looking for help with : Loding...<br>🌱 I’m currently learning : SITC CAMPUS<br>💬 Ask me about : Loding...<br>⚡ Fun fact
 
 
 ## 🌐 Socials:
